@@ -1,2 +1,30 @@
 # EasyFastLearn
 Here I Upload my Teaching Slides
+0
+https://docs.google.com/presentation/d/1U6N9vZLyrd7ixZBvRPQPFB0f9yscuDNoZunm2Zkj8eQ/edit?usp=sharing
+1
+https://docs.google.com/presentation/d/1EnjEbBHc970uUarHuwL84o1lcENbjpUpBv56RRcENug/edit?usp=sharing
+1.1
+https://docs.google.com/presentation/d/1JQw2NusTXI8zkMTnQfIyl-R7RfRjMf6l-CU65bO8pec/edit?usp=sharing
+2
+https://docs.google.com/presentation/d/1lA83Q1ZAXcZWNfq8Q0I-PnU7359od_VzLe-RRPnVjv4/edit?usp=sharing
+3
+https://docs.google.com/presentation/d/1CUsticbZ5zfA9zTauRt_7k87MIVhcUz174jHqeEEz2g/edit?usp=sharing
+4
+https://docs.google.com/presentation/d/1MBF2Zdk9s0Es6AljU-g0XypFu1bSK9j1IsEzxtnzrWs/edit?usp=sharing
+5
+https://docs.google.com/presentation/d/1p4XvFg9TmcaZMgsQGzsGTbObg2tPEn7oiZo-DLbtNkE/edit?usp=sharing
+6
+https://docs.google.com/presentation/d/11Dbqe9wQZsz45sN-6g5rKshHaNMMtxagYgiKpvguvCc/edit?usp=sharing
+7
+https://docs.google.com/presentation/d/1InoYmDPTCSlKV3Yn_7lTlrk_TBV7lPOf-6UIiG7XgTM/edit?usp=drive_link
+8
+https://docs.google.com/presentation/d/1IISSh5HdfLZcoSG7mUgKqqpt1QbBsCj8WKa6ErsG5Hw/edit?usp=sharing
+10
+https://docs.google.com/presentation/d/15nJoQX1oyxPjTbGDnqPE6ItC4zDoSam38FHQV2ySJzw/edit?usp=sharing
+11
+https://docs.google.com/presentation/d/1vydaWZAFBo-jsVJsWYi6JXYAy3UfLQNfnQoFJQfudT0/edit?usp=sharing
+12
+https://docs.google.com/presentation/d/1InoYmDPTCSlKV3Yn_7lTlrk_TBV7lPOf-6UIiG7XgTM/edit?usp=drive_link
+13
+https://docs.google.com/presentation/d/1ZRquUKYSUpn-JhbRUcK3AZEprzygyJ0pAKp9zNjMlDg/edit?usp=sharing
