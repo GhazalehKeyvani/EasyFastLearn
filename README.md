@@ -39,7 +39,7 @@ Lab Simulations: Packet Tracer exercises
 
 Exam Tips: Key test-taking strategies highlighted
 
-##👩‍🏫 Instructor Resources
+## 👩‍🏫 Instructor Resources
 Suggested lab activities for each module
 
 Discussion questions for classroom engagement
